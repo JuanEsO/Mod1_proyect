@@ -4,4 +4,4 @@ CC: 1007222971
 Programa: Ing. de Sistemas
 Curso: Modelos 1
 
-https://youtu.be/CvJksisyUbA
+https://youtu.be/whtw8BJ7Kq8
